@@ -15,7 +15,7 @@
 
 - ⚡ Fun fact **Plastic dinosaurs are made of real dinosaurs**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">
 <p align="left">
 </p>
 
